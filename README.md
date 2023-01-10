@@ -1,13 +1,4 @@
+[message link](https://canary.discord.com/channels/333949691962195969/979791110119522384/1056690559034605608)
 
-Krom ve Yusuf tarafından yapılan Chondix Bot v1 :)
 
-[Discord](https://discord.com/invite/SANuqz8vNq)
-Öncelikle Selam,
-Bu mesajı okuyorsan altyapıyı almışsın demektir :)
-Seni seviyoruz <3
-**VİDEOYU SONUNA KADAR İZLE!!!**
-YOKSA ALTYAPIYI DÜZGÜN ÇALIŞTIRAMAZSIN :)
-
-**Sağ üstteki star yazısına tıklayıp star verirsen çok mutlu olurum <3**
-
-Krom
+Bots Variey but all of them have these commands at least or something very similar just with less commands: https://imgur.com/a/nav1aKJ https://imgur.com/a/vOuYifM https://imgur.com/a/6ye77uC https://imgur.com/a/97aCvh7
